@@ -70,3 +70,56 @@ YT Video link:  https://www.youtube.com/watch?v=9VlvbpXwLJs
 - People in the brands, connect with them.
 - Work with someone already working with one of these brands. Agents: media buyers and agencies.
 - Lean into a brand relationship. Use their brands to get into their culture. 
+
+## How to build a brand?
+- What are your values and what do you care about?
+- Your brand will have its own personal branding.
+- References:- Nike supports top performing atheletes. Risks involved.
+- Leadership:- You personally leading the company, you need to have proper mechanisms to make sure you're protected as a brand. Risks involved.
+- You should have a strong transition plan.
+- Learn to say NO.
+
+## How to Hire, Grow and Build?
+- Purpose:- People you hire believe in that purpose, you'll never have to manage anybody. One way is to check their social media.
+- Give your team equity. Is a token of respect.
+- Value that your business holds and you need people to grow.
+- Destination:- Why you do you wanna grow?
+- Risks:- Make sure you build minimal viable products.
+- Allow people to be speacialists in certain areas. In early days, you might need them to ge generalists. For this, you need proper systems.
+
+## How to Fire Someone?
+- Put a proper structure in place to identify what is success for that employee. You haven't performed -> How can I help you perfom?
+- 7 and 8 rule: they are hard to manage. Help them if needed.
+- If they come up too much in any conversation, you have a problem.
+- Fearful of not finding someone better. Line up next hire before you fire. Help them find that 'other' job they are looking for.
+
+## How to go Global?
+- Research for opportunity. Find out where your product could be sold:- Investro, partership with a brand etc.
+- Franchising: Someone else running your brand in another Market under a License.
+
+## How to get a Mentor?
+- Research what matters to that person.
+- Defint what you mean when you say "Will you be my mentor?".
+- Ask a question firest instead of mentorship. The latter will result in no reply.
+- Mentor <-> Advisor. Advisory board of a Company usually exists.
+- Connect to the people that they are connected to (referals).
+- Give value, don't expect anything.
+
+# How Equity Works?
+- "You control your company by the shareholder agreement not by the amount of equity that you hold. Equity ownership != Control.
+- Don't sell too much equity in the beginning. 50/50 if you have a co-founder. But the danger is decision lock.
+- Or you could do 50/50 with the board of advisors. You need to know where you are going and why and therefore avoid conflict when it comes to major decision making. For example: one person wants to take the money out and other wants to put it back into business.
+- If you are a Ltd company looking to raise money, please make your cap table has the right people on it. Ex: ownership will tarnish your reputation. Align your brand to the equity ownership.
+- Shares: On the stock market, you own but don't have infuence over that business, no decision making power. A company can delist itself from stock market.
+- Give real life equity to your staff.
+- Research about shares and equity, it is a vast topic.
+- If you are looking to list it on IPO one day, you need to know that when you're starting the business. Reverse engineer your share equity structure from your end goal.
+- Safe concept: What is your business worth?
+
+# How to Sell your business? 
+- Build a business you love and sell it by accident, by this you actually make a lot of money.
+- Partner itself buys.
+- You can approach agents.
+- Merger (with competition). This comes with risks.
+- Allowing the management itself to buy.
+- "Never start a business to sell it".
